@@ -4,6 +4,6 @@
 
    ⭒ I'm actually a quiet and level-headed person, as you might think... It's hard for me to keep up a conversation with anyone other than my close friends (!!!)
   - But if you still want to write, I'll be happy ^_^ --- Just please keep my words in mind
-  - and yes, it's okay to write to me (c+h)! But it's better to check if I'm with friends at the moment, as I would prefer you not to do so,,,
+  - and yes, it's okay to communicate to me (c+h)! But it's better to check if I'm with friends at the moment, as I would prefer you not to do so,,,
    - I'm always honest about my feelings. If I feel uncomfortable, I'll be straightforward and end the conversation. Therefore, please be mindful of your words. I won't pretend that everything is fine if I smell bad vibes. Isn't it better to be honest with each other from the start, Right?
        
