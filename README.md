@@ -5,4 +5,8 @@
    ⭒ I'm actually a quiet and level-headed person, as you might think... It's hard for me to keep up a conversation with anyone other than my close friends (!!!)
    But if you still want to write, then,,,, why not?  --- __Just please keep my words in mind__
    - My ***[Carrd](https://endysteaparty.carrd.co)*** is like a draft that's always in progress! It's not perfect, and there's not a lot of information, but if you want to get to know me a little better, this is the place for __you__     - Because the most important thing there is __me__!!!!! (✿◡‿⊹.)
-       
+
+---
+
+<div align="right"> 
+ *sounds of a suffocating violin** ;cry;;cry;;running man;
