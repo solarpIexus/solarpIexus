@@ -9,7 +9,7 @@
  <img src="https://i.pinimg.com/736x/70/b5/ce/70b5ce50ee3b11bed50cd0e358f42d04.jpg" width="25%" align="center" />
 
  
- *sounds of a suffocating violin** ;cry;;cry;;running man;
+ *sounds of a suffocating violin**
 
  
  
