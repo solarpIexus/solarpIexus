@@ -3,8 +3,8 @@
 <div align="center"> 
 
  
-![tumblr_0de0b3c98cffd49538a7f104b5be96f2_4903233b_400](https://github.com/user-attachments/assets/3f9df8ca-02c4-4436-bac0-d82d4f6a3903)
 
+![tumblr_2ea0a2d2cfce01c0b955d0b8649af5b7_f2a35dfb_250](https://github.com/user-attachments/assets/3464a60b-0873-45b9-8085-46a79abc6da6)
 
 
 
