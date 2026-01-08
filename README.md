@@ -12,7 +12,7 @@ keep your friends close......... that is all :3
  
 mosly AFK(!!!)   so use w2i for convenience
 
-i loooove to communicate to others, but iam a little shy, so i don't usually initiate conversations!!!!!!!!!aaaaaa
+i loooove to communicate with others, but iam a little shy, so i don't usually initiate conversations!!!!!!!!!aaaaaa
 
 
 
