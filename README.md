@@ -10,7 +10,7 @@ keep your friends close......... that is all :3
 <div align="center">
  you can call me Andy! I use he\any(any is fine) pronous
  
-mosly AFK(!!!)   so use w2i for convenience
+mostly AFK(!!!)   so use w2i for convenience
 
 i loooove to communicate with others, but iam a little shy, so i don't usually initiate conversations!!!!!!!!!aaaaaa
 
