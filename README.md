@@ -7,15 +7,19 @@
 
 
 <div align="center">
- you can call me Andy! I use he\any(any is fine) pronous
- 
-mostly AFK(!!!)   so use w2i for convenience
 
-im open to c+h, but  I truly value kindness and respect above all//// A little politeness goes a long way with me!!!! C;>
+ $\text{\color{#fcf0b3}― ₊ ☀︎ ⋆ ―}$
+ 
+ $\text{\color{#6eb8a0}you can call me Andy! I use he⥋any(any is fine) pronous}$
+ 
+$\text{\color{#6eb8a0}mostly AFK(!!!)   so use w2i for convenience}$
+
+$\text{\color{#6eb8a0}im open to c+h, but  I truly value kindness and respect above all//// A little politeness goes a long way with me!!!! C;>}$
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317lrwgfljfablmwul4467x7c32e&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-
+$\text{\color{#fcf0b3}⊹₊⋄}$
 
 
 
