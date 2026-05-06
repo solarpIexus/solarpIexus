@@ -14,7 +14,9 @@
  
 $\text{\color{#fcf0b3}mostly AFK (!!!) }$   $\text{\color{#6eb8a0}so use w2i for convenience}$
 
-$\text{\color{#6eb8a0}im open to c+h, but  I truly value kindness and respect above all,,,,  - a little politeness goes a long way with me!!!! C;>}$
+$\text{\color{#6eb8a0}im open to c+h, but  I truly value kindness and respect above all - a little politeness goes a long way with me!!!! C;> }$
+
+$\text{\color{#6eb8a0} (please see If im with my friends(!!!) if I am, I'd rather not to be contacted) }$
 
 $\text{\color{#fcf0b3}⊹₊⋄}$
 
