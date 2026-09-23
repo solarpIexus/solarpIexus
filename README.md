@@ -23,7 +23,5 @@
   
 
 <p align="center">
-<img width="105"  height="auto"  alt="cat-and-dog-minecraft" src="https://github.com/user-attachments/assets/4ebcc1ac-90ab-4bc8-b385-b952f58e871a" />
-
-
+<img width="105" height="auto" alt="giphy" src="https://github.com/user-attachments/assets/4b6554ab-1bef-4c0f-9dc9-1530a0ef60d0" />
 
